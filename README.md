@@ -17,5 +17,8 @@ This is not a game this is not a fiction mob
 This is the real life
 The game is currency 64 
 Fibo0nacci altered to Fibonacci one repost 
+THE UNITY OF THE RELIGION
+
+
 
 --->
